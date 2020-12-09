@@ -1,2 +1,1 @@
-# Hot Gadget E-Commerce
 
